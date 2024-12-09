@@ -11,5 +11,5 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is that i have 2 cats
-* Ask Mr. Vu anything: 
-* List your sports and extracurriculars you participate in
+* Ask Mr. Vu anything: How long have you been a teacher?
+* List your sports and extracurriculars you participate in: 
